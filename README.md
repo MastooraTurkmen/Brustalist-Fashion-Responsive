@@ -1,0 +1,8 @@
+# Brustalist-Fashion-Responsive
+
+## GET FASHION
+
+SHOP THE NEW FALL COLLECTION OF WOW APPAREAL. THE HOTTEST TRENDS, THE LATEST VIBES, AND THE BEST ECO-FRIENDLY QUALITY.
+![Alt text](<Screenshot 2023-10-04 160511.png>)
+
+![Alt text](<Screenshot 2023-10-04 160531.png>)
